@@ -1,0 +1,2 @@
+# seminarka_vj
+seminarka
